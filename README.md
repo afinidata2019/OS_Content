@@ -1,13 +1,12 @@
-OVERVIEW
+# OVERVIEW
 
 This list of content includes 200 (two hundred) links with educational content. Each link includes the description of the instructions on how to carry out activities that help young children to improve developmental skills on motor, cognitive, language and social emotional areas.
 
-CONTENT LINKS
+# CONTENT LINKS
 
 | NAME | AGE RANGE | LINK | PICTURE |
 | --- | --- | --- | --- |
-| Inteligencia Emocional |
- | https://afinicontent.com/en-contacto-con-mis-emociones/ | [https://afinicontent.com/wp-content/uploads/2020/07/inteligencia-emocional.jpg](https://afinicontent.com/wp-content/uploads/2020/07/inteligencia-emocional.jpg) |
+| Inteligencia Emocional || https://afinicontent.com/en-contacto-con-mis-emociones/ | [https://afinicontent.com/wp-content/uploads/2020/07/inteligencia-emocional.jpg](https://afinicontent.com/wp-content/uploads/2020/07/inteligencia-emocional.jpg) |
 | Explorando Texturas | 13-18 months | https://afinicontent.com/explorando-texturas-2/ | [https://afinicontent.com/wp-content/uploads/2020/07/Untitled-design.jpg](https://afinicontent.com/wp-content/uploads/2020/07/Untitled-design.jpg) |
 | Objects transfer | 0-3 months | https://afinicontent.com/es-hora-de-agarrar-objetos/ | [https://afinicontent.com/wp-content/uploads/2020/06/Canva-Portrait-of-Indian-Baby-Boy-with-Toy.jpg](https://afinicontent.com/wp-content/uploads/2020/06/Canva-Portrait-of-Indian-Baby-Boy-with-Toy.jpg) |
 | Bolsa sensorial | 10-12 months | https://afinicontent.com/bolsa-sensorial-con-vegetales/ | [https://afinicontent.com/wp-content/uploads/2020/06/bolsa-sensorial-vegetales.jpg](https://afinicontent.com/wp-content/uploads/2020/06/bolsa-sensorial-vegetales.jpg) |
@@ -52,8 +51,7 @@ CONTENT LINKS
 | Sueños y deseos | 61-200 months | https://afinicontent.com/suenos-y-deseos/ | [https://afinicontent.com/wp-content/uploads/2020/08/60e07b3d-ec27-40a8-a01b-d924d9f8e29d.jpg](https://afinicontent.com/wp-content/uploads/2020/08/60e07b3d-ec27-40a8-a01b-d924d9f8e29d.jpg) |
 | ¡Juguemos al doctor! | 37-48 months | https://afinicontent.com/juguemos-al-doctor/ | [https://afinicontent.com/wp-content/uploads/2020/08/be94d515-f505-4726-b7c8-fba58105fb83.jpg](https://afinicontent.com/wp-content/uploads/2020/08/be94d515-f505-4726-b7c8-fba58105fb83.jpg) |
 | Herramienta Vegetal | 37-48 months | https://afinicontent.com/herramienta-vegetal/ | [https://afinicontent.com/wp-content/uploads/2020/08/23edabdf-9b12-4add-8403-bed1b40f78b6.jpg](https://afinicontent.com/wp-content/uploads/2020/08/23edabdf-9b12-4add-8403-bed1b40f78b6.jpg) |
-| Reacciones circulares secundarias |
- | https://afinicontent.com/reacciones-circulares-secundarias/ | [https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/3269e41a-9d2a-455f-a0e3-c97514b2af50.jpg](https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/3269e41a-9d2a-455f-a0e3-c97514b2af50.jpg) |
+| Reacciones circulares secundarias | | https://afinicontent.com/reacciones-circulares-secundarias/ | [https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/3269e41a-9d2a-455f-a0e3-c97514b2af50.jpg](https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/3269e41a-9d2a-455f-a0e3-c97514b2af50.jpg) |
 | Irreversibilidad | 61-200 months | https://afinicontent.com/irreversibilidad/ | [https://afinicontent.com/wp-content/uploads/2020/07/Canva-Photo-of-Girl-Smiling-While-Holding-Drinking-Glass.jpg](https://afinicontent.com/wp-content/uploads/2020/07/Canva-Photo-of-Girl-Smiling-While-Holding-Drinking-Glass.jpg) |
 | Transformando objetos | 61-200 months | https://afinicontent.com/transformando-objetos/ | [https://afinicontent.com/wp-content/uploads/2020/07/Canva-little-baby-play-with-clay-molding-shapes.jpg](https://afinicontent.com/wp-content/uploads/2020/07/Canva-little-baby-play-with-clay-molding-shapes.jpg) |
 | Creando Nubes | 61-200 months | https://afinicontent.com/creando-nubes/ | [https://afinicontent.com/wp-content/uploads/2020/08/8f3629f6-2c1b-4b75-b7c3-cb59f4117d28.jpg](https://afinicontent.com/wp-content/uploads/2020/08/8f3629f6-2c1b-4b75-b7c3-cb59f4117d28.jpg) |
