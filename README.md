@@ -1,8 +1,8 @@
-OVERVIEW
+# OVERVIEW
 
 This list of content includes 200 (two hundred) links with educational content. Each link includes the description of the instructions on how to carry out activities that help young children to improve developmental skills on motor, cognitive, language and social emotional areas.
 
-CONTENT LINKS
+# CONTENT LINKS
 
 | NAME | AGE RANGE | LINK | PICTURE |
 | --- | --- | --- | --- |
