@@ -206,3 +206,6 @@ This list of content includes 200 (two hundred) links with educational content. 
 | Baño de burbujas | 4-6 months | https://afinicontent.com/bano-de-burbujas/ | [https://afinicontent.com/wp-content/uploads/2021/11/2aa0d96c-5bda-4966-9bf9-ce25ea3d909a.png](https://afinicontent.com/wp-content/uploads/2021/11/2aa0d96c-5bda-4966-9bf9-ce25ea3d909a.png) |
 | Dónde está marioneta | 7-9 months | https://afinicontent.com/donde-estas-marioneta-2/ | [https://afinicontent.com/wp-content/uploads/2021/11/094ebd7e-1643-4440-b235-02171d73ba73.png](https://afinicontent.com/wp-content/uploads/2021/11/094ebd7e-1643-4440-b235-02171d73ba73.png) |
 | Oídos mágicos | 4-6 months | https://afinicontent.com/oidos-magicos-2/ | [https://afinicontent.com/wp-content/uploads/2021/11/214c7d86-e470-4b04-89ff-66984e3ad054.jpg](https://afinicontent.com/wp-content/uploads/2021/11/214c7d86-e470-4b04-89ff-66984e3ad054.jpg) |
+
+# LICENSE
+All content of the links above are under [Attribution-NonCommercial-ShareAlike 4.0 International](https://github.com/afinidata2019/OS_Content/blob/9c7d5fcd193deb6ee01962f4121c9cde2277f2db/LICENSE)
