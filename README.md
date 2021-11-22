@@ -208,4 +208,4 @@ This list of content includes 200 (two hundred) links with educational content. 
 | Oídos mágicos | 4-6 months | https://afinicontent.com/oidos-magicos-2/ | [https://afinicontent.com/wp-content/uploads/2021/11/214c7d86-e470-4b04-89ff-66984e3ad054.jpg](https://afinicontent.com/wp-content/uploads/2021/11/214c7d86-e470-4b04-89ff-66984e3ad054.jpg) |
 
 # LICENSE
-All content of the links above are under [Attribution-NonCommercial-ShareAlike 4.0 International](https://github.com/afinidata2019/OS_Content/blob/9c7d5fcd193deb6ee01962f4121c9cde2277f2db/LICENSE)
+All content of the links above are under [Attribution-NonCommercial-ShareAlike 4.0 International License](https://github.com/afinidata2019/OS_Content/blob/9c7d5fcd193deb6ee01962f4121c9cde2277f2db/LICENSE) 
