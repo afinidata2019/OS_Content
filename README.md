@@ -1,2 +1,2 @@
 # OS_Content
-Open Source Content 
+Open Source Content licence
