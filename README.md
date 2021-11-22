@@ -1,12 +1,12 @@
-# OVERVIEW
+OVERVIEW
 
 This list of content includes 200 (two hundred) links with educational content. Each link includes the description of the instructions on how to carry out activities that help young children to improve developmental skills on motor, cognitive, language and social emotional areas.
 
-# CONTENT LINKS
+CONTENT LINKS
 
 | NAME | AGE RANGE | LINK | PICTURE |
 | --- | --- | --- | --- |
-| Inteligencia Emocional || https://afinicontent.com/en-contacto-con-mis-emociones/ | [https://afinicontent.com/wp-content/uploads/2020/07/inteligencia-emocional.jpg](https://afinicontent.com/wp-content/uploads/2020/07/inteligencia-emocional.jpg) |
+| Inteligencia Emocional | | https://afinicontent.com/en-contacto-con-mis-emociones/ | [https://afinicontent.com/wp-content/uploads/2020/07/inteligencia-emocional.jpg](https://afinicontent.com/wp-content/uploads/2020/07/inteligencia-emocional.jpg) |
 | Explorando Texturas | 13-18 months | https://afinicontent.com/explorando-texturas-2/ | [https://afinicontent.com/wp-content/uploads/2020/07/Untitled-design.jpg](https://afinicontent.com/wp-content/uploads/2020/07/Untitled-design.jpg) |
 | Objects transfer | 0-3 months | https://afinicontent.com/es-hora-de-agarrar-objetos/ | [https://afinicontent.com/wp-content/uploads/2020/06/Canva-Portrait-of-Indian-Baby-Boy-with-Toy.jpg](https://afinicontent.com/wp-content/uploads/2020/06/Canva-Portrait-of-Indian-Baby-Boy-with-Toy.jpg) |
 | Bolsa sensorial | 10-12 months | https://afinicontent.com/bolsa-sensorial-con-vegetales/ | [https://afinicontent.com/wp-content/uploads/2020/06/bolsa-sensorial-vegetales.jpg](https://afinicontent.com/wp-content/uploads/2020/06/bolsa-sensorial-vegetales.jpg) |
