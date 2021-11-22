@@ -48,207 +48,56 @@ Mosaico de colores|61-200 meses|https://afinicontent.com/mosaico-de-colores/|htt
 Sueños y deseos|61-200 meses|https://afinicontent.com/suenos-y-deseos/|https://afinicontent.com/wp-content/uploads/2020/08/60e07b3d-ec27-40a8-a01b-d924d9f8e29d.jpg
 ¡Juguemos al doctor!|37-48 meses|https://afinicontent.com/juguemos-al-doctor/|https://afinicontent.com/wp-content/uploads/2020/08/be94d515-f505-4726-b7c8-fba58105fb83.jpg
 Herramienta Vegetal|37-48 meses|https://afinicontent.com/herramienta-vegetal/|https://afinicontent.com/wp-content/uploads/2020/08/23edabdf-9b12-4add-8403-bed1b40f78b6.jpg
-Reacciones circulares secundarias
-
-
-https://afinicontent.com/reacciones-circulares-secundarias/
-https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/3269e41a-9d2a-455f-a0e3-c97514b2af50.jpg
-Irreversibilidad
-61-200 meses
-https://afinicontent.com/irreversibilidad/
-https://afinicontent.com/wp-content/uploads/2020/07/Canva-Photo-of-Girl-Smiling-While-Holding-Drinking-Glass.jpg
-Transformando objetos
-61-200 meses
-https://afinicontent.com/transformando-objetos/
-https://afinicontent.com/wp-content/uploads/2020/07/Canva-little-baby-play-with-clay-molding-shapes.jpg
-Creando Nubes
-61-200 meses
-https://afinicontent.com/creando-nubes/
-https://afinicontent.com/wp-content/uploads/2020/08/8f3629f6-2c1b-4b75-b7c3-cb59f4117d28.jpg
-Regando plantas
-25-36 meses
-https://afinicontent.com/regando-plantas/
-https://afinicontent.com/wp-content/uploads/2020/08/f6db665f-38ca-44fe-8191-24de5270a351.jpg
-Conociendo los reflejos de mi peque
-0-3 meses
-https://afinicontent.com/conociendo-los-reflejos-de-mi-peque/
-https://afinicontent.com/wp-content/uploads/2020/06/Untitled-design-7.jpg
-¡Descubriendo los estados del agua!
-61-200 meses
-https://afinicontent.com/descubriendo-los-estados-del-agua/
-https://afinicontent.com/wp-content/uploads/2020/08/9c6bf1cc-7264-44b9-850e-70c79df65c2d.jpg
-Burbujas coloridas
-49- 60 meses
-https://afinicontent.com/burbujas-coloridas/
-https://afinicontent.com/wp-content/uploads/2020/07/burbujas.jpg
-¡Soy un globo!
-49- 60 meses
-https://afinicontent.com/soy-un-globo/
-https://afinicontent.com/wp-content/uploads/2020/08/soy-un-globo.jpg
-La tortuga Manolita y su caparazón
-49- 60 meses
-https://afinicontent.com/la-tortuga-manolita-y-su-caparazon/
-https://afinicontent.com/wp-content/uploads/2020/08/la-tortuga-manolita.jpg
-¡Leche mágica!
-61-200 meses
-https://afinicontent.com/leche-de-colores/
-https://afinicontent.com/wp-content/uploads/2020/08/leche-de-colores.jpg
-¡Espuma mágica!
-61-200 meses
-https://afinicontent.com/espuma-magica/
-https://afinicontent.com/wp-content/uploads/2020/08/espuma-m%C3%A1gica.jpg
-¡Así, así muevo mi boquita!
-49- 60 meses
-https://afinicontent.com/asi-asi-muevo-mi-boquita/
-https://afinicontent.com/wp-content/uploads/2020/07/Canva-Boy-with-a-surprised-expression.jpg
-¡Pintando con sal!
-61-200 meses
-https://afinicontent.com/pintando-con-sal/
-https://afinicontent.com/wp-content/uploads/2020/08/pintar-con-sal.jpg
-¡Globos con agua!
-61-200 meses
-https://afinicontent.com/globos-con-agua/
-https://afinicontent.com/wp-content/uploads/2020/08/globos-con-agua-1.jpg
-¡Saltando como conejitos!
-61-200 meses
-https://afinicontent.com/saltando-como-conejitos/
-https://afinicontent.com/wp-content/uploads/2020/08/Saltando-conejitos.jpg
-El titiritero
-61-200 meses
-https://afinicontent.com/el-titiritero/
-https://afinicontent.com/wp-content/uploads/2020/08/el-titiritero.jpg
-¿Dónde está la pelotita?
-61-200 meses
-https://afinicontent.com/donde-esta-la-pelotita/
-https://afinicontent.com/wp-content/uploads/2020/08/d%C3%B3nde-es%C2%B4ta-la-pelotia.jpg
-¡Somos escritores!
-49- 60 meses
-https://afinicontent.com/somos-escritores-2/
-https://afinicontent.com/wp-content/uploads/2020/08/somos-escritores.jpg
-Imito escenas de mi cuento favorito
-37-48 meses
-https://afinicontent.com/imito-escenas-de-mi-cuento-favorito/
-https://afinicontent.com/wp-content/uploads/2020/07/Canva-Girl-with-face-painting.jpg
-Imitando a papi y mami
-10-12 meses
-https://afinicontent.com/imitando-a-papi-y-mami-2/
-https://afinicontent.com/wp-content/uploads/2020/08/Untitled-design-9.jpg
-Día de Campo
-10-12 meses
-https://afinicontent.com/picnic-con-peluches/
-https://afinicontent.com/wp-content/uploads/2020/06/Untitled-design-10.jpg
-Conozcamos animales y plantas
-19-24 meses
-https://afinicontent.com/conozcamos-animales-y-plantas/
-https://afinicontent.com/wp-content/uploads/2020/08/conozcamos-animales-y-plantas.png
-Juguetes Grandes y Pequeños
-25-36 meses
-https://afinicontent.com/juguetes-grandes-y-pequenos/
-https://afinicontent.com/wp-content/uploads/2020/07/Canva-Toy-teddy-bear..jpg
-Let’s play with the cubes
-7-9 meses
-https://afinicontent.com/juguemos-con-los-cubos/
-https://afinicontent.com/wp-content/uploads/2020/06/bloque.png
-Cabeza, cara...
-13-18 meses
-https://afinicontent.com/cabeza-cara/
-https://afinicontent.com/wp-content/uploads/2020/08/cabeza-cara-1.png
-Arriba y abajo
-7-9 meses
-https://afinicontent.com/arriba-y-abajo/
-https://afinicontent.com/wp-content/uploads/2020/06/Canva-African-American-Mother-.jpg
-Soplen Peques
-49- 60 meses
-https://afinicontent.com/soplen-peques/
-https://afinicontent.com/wp-content/uploads/2020/07/Canva-Thirsty-Multicultural-Children-Drink-Water-1.jpg
-Mi primera pelota
-0-3
-https://afinicontent.com/mi-primera-pelota/
-https://afinicontent.com/wp-content/uploads/2020/06/primera-pelota.jpg
-Imitando a mamá y papá
-0-3 meses
-https://afinicontent.com/imitando-a-mama-y-papa/
-https://afinicontent.com/wp-content/uploads/2020/06/imitando-a-mam%C3%A1-y-pap%C3%A1.jpg
-Palmaditas
-0-3 meses
-https://afinicontent.com/palmaditas/
-https://afinicontent.com/wp-content/uploads/2020/06/Untitled-design-12.jpg
-Mi Carita
-0-3 meses
-https://afinicontent.com/mi-carita/
-https://afinicontent.com/wp-content/uploads/2020/06/mi-carita.jpg
-Boca Musical
-0-3 meses
-https://afinicontent.com/boca-musical/
-https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/ef01e20e-b395-48e5-8c31-2f7a8ba850a3.jpg
-Charlando en la cuna
-0-3 meses
-https://afinicontent.com/charlando-en-la-cuna/
-https://afinicontent.com/wp-content/uploads/2020/06/charlando-lacuna.jpg
-Mimos
-0-3 meses
-https://afinicontent.com/mimos/
-https://afinicontent.com/wp-content/uploads/2020/06/mimos.jpg
-Mi Primer sonajero
-0-3 meses
-https://afinicontent.com/mi-primer-sonajero/
-https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/e90e1f78-6b21-4b09-83ad-ec615ca87e58.jpg
-Mirada de amor
-0-3 meses
-https://afinicontent.com/mirada-de-amor/
-https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/4324141f-fc08-4172-98d9-b5e5d6d365d3.jpg
-Juego de voces
-0-3 meses
-https://afinicontent.com/juego-de-voces/
-https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/feade61c-dbda-4f65-8ccf-cafe76894528.jpg
-Canciones de cambio de pañal
-0-3 meses
-https://afinicontent.com/canciones-de-cambio-de-panal/
-https://afinicontent.com/wp-content/uploads/2020/06/camciones-de-cambio-de-pa%C3%B1al.jpg
-Me veo en el espejo
-7-9 meses
-https://afinicontent.com/me-veo-en-el-espejo/
-https://afinicontent.com/wp-content/uploads/2020/06/veo-el-eseojo.jpg
-Quita el sombrero
-7-9 meses
-https://afinicontent.com/quita-el-sombrero/
-https://afinicontent.com/wp-content/uploads/2020/06/Untitled-design-17.jpg
-Veo veo una sombra
-4-6 meses
-https://afinicontent.com/veo-veo-una-sombra/
-https://afinicontent.com/wp-content/uploads/2020/06/veo-veo-una-sombra.jpg
-Balanceo
-0-3 meses
-https://afinicontent.com/balanceo/
-https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/372526e2-170e-4578-9e5f-0d6b054d0e72.jpg
-¡Llamemos por teléfono!
-25-36 meses
-https://afinicontent.com/llamemos-por-telefono/
-https://afinicontent.com/wp-content/uploads/2020/08/tel%C3%A9fono.png
-Figuritas en el techo
-4-6 meses
-https://afinicontent.com/figuritas-en-el-techo/
-https://afinicontent.com/wp-content/uploads/2020/06/figuritas-en-el-techo.jpg
-Puedes alcanzarlo
-0-3 meses
-https://afinicontent.com/puedes-alcanzarlo/
-https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/1984a168-194f-4a96-a2ec-4203795ed93e.jpg
-ARañita en mi pancita
-4-6 meses
-https://afinicontent.com/aranita-en-mi-pancita/
-https://afinicontent.com/wp-content/uploads/2020/06/ara%C3%B1ita-en-mi-pancita.jpg
-Vamos de paseo
-4-6 meses
-https://afinicontent.com/vamos-de-paseo/
-https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/6ed4df51-3443-4802-a9d3-a24419fd6b71.jpg
-Elevando el Globito
-37-48 meses
-https://afinicontent.com/elevando-el-globito/
-https://afinicontent.com/wp-content/uploads/2020/07/Canva-Kids-playing-with-balloons.jpg
-Utilizando lenguaje positivo
-10-12 meses
-https://afinicontent.com/utilizando-lenguaje-positivo/
-https://afinicontent.com/wp-content/uploads/2020/09/utilizando-un-lenguaje-positivo.jpg
+Reacciones circulares secundarias||https://afinicontent.com/reacciones-circulares-secundarias/|https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/3269e41a-9d2a-455f-a0e3-c97514b2af50.jpg
+Irreversibilidad|61-200 meses|https://afinicontent.com/irreversibilidad/|https://afinicontent.com/wp-content/uploads/2020/07/Canva-Photo-of-Girl-Smiling-While-Holding-Drinking-Glass.jpg
+Transformando objetos|61-200 meses|https://afinicontent.com/transformando-objetos/|https://afinicontent.com/wp-content/uploads/2020/07/Canva-little-baby-play-with-clay-molding-shapes.jpg
+Creando Nubes|61-200 meses|https://afinicontent.com/creando-nubes/|https://afinicontent.com/wp-content/uploads/2020/08/8f3629f6-2c1b-4b75-b7c3-cb59f4117d28.jpg
+Regando plantas|25-36 meses|https://afinicontent.com/regando-plantas/|https://afinicontent.com/wp-content/uploads/2020/08/f6db665f-38ca-44fe-8191-24de5270a351.jpg
+Conociendo los reflejos de mi peque|0-3 meses|https://afinicontent.com/conociendo-los-reflejos-de-mi-peque/|https://afinicontent.com/wp-content/uploads/2020/06/Untitled-design-7.jpg
+¡Descubriendo los estados del agua!|61-200 meses|https://afinicontent.com/descubriendo-los-estados-del-agua/|https://afinicontent.com/wp-content/uploads/2020/08/9c6bf1cc-7264-44b9-850e-70c79df65c2d.jpg
+Burbujas coloridas|49- 60 meses|https://afinicontent.com/burbujas-coloridas/|https://afinicontent.com/wp-content/uploads/2020/07/burbujas.jpg
+¡Soy un globo!|49- 60 meses|https://afinicontent.com/soy-un-globo/|https://afinicontent.com/wp-content/uploads/2020/08/soy-un-globo.jpg
+La tortuga Manolita y su caparazón|49- 60 meses|https://afinicontent.com/la-tortuga-manolita-y-su-caparazon/|https://afinicontent.com/wp-content/uploads/2020/08/la-tortuga-manolita.jpg
+¡Leche mágica!|61-200 meses|https://afinicontent.com/leche-de-colores/|https://afinicontent.com/wp-content/uploads/2020/08/leche-de-colores.jpg
+¡Espuma mágica!|61-200 meses|https://afinicontent.com/espuma-magica/|https://afinicontent.com/wp-content/uploads/2020/08/espuma-m%C3%A1gica.jpg
+¡Así, así muevo mi boquita!|49- 60 meses|https://afinicontent.com/asi-asi-muevo-mi-boquita/|https://afinicontent.com/wp-content/uploads/2020/07/Canva-Boy-with-a-surprised-expression.jpg
+¡Pintando con sal!|61-200 meses|https://afinicontent.com/pintando-con-sal/|https://afinicontent.com/wp-content/uploads/2020/08/pintar-con-sal.jpg
+¡Globos con agua!|61-200 meses|https://afinicontent.com/globos-con-agua/|https://afinicontent.com/wp-content/uploads/2020/08/globos-con-agua-1.jpg
+¡Saltando como conejitos!|61-200 meses|https://afinicontent.com/saltando-como-conejitos/|https://afinicontent.com/wp-content/uploads/2020/08/Saltando-conejitos.jpg
+El titiritero|61-200 meses|https://afinicontent.com/el-titiritero/|https://afinicontent.com/wp-content/uploads/2020/08/el-titiritero.jpg
+¿Dónde está la pelotita?|61-200 meses|https://afinicontent.com/donde-esta-la-pelotita/|https://afinicontent.com/wp-content/uploads/2020/08/d%C3%B3nde-es%C2%B4ta-la-pelotia.jpg
+¡Somos escritores!|49- 60 meses|https://afinicontent.com/somos-escritores-2/|https://afinicontent.com/wp-content/uploads/2020/08/somos-escritores.jpg
+Imito escenas de mi cuento favorito|37-48 meses|https://afinicontent.com/imito-escenas-de-mi-cuento-favorito/|https://afinicontent.com/wp-content/uploads/2020/07/Canva-Girl-with-face-painting.jpg
+Imitando a papi y mami|10-12 meses|https://afinicontent.com/imitando-a-papi-y-mami-2/|https://afinicontent.com/wp-content/uploads/2020/08/Untitled-design-9.jpg
+Día de Campo|10-12 meses|https://afinicontent.com/picnic-con-peluches/|https://afinicontent.com/wp-content/uploads/2020/06/Untitled-design-10.jpg
+Conozcamos animales y plantas|19-24 meses|https://afinicontent.com/conozcamos-animales-y-plantas/|https://afinicontent.com/wp-content/uploads/2020/08/conozcamos-animales-y-plantas.png
+Juguetes Grandes y Pequeños|25-36 meses|https://afinicontent.com/juguetes-grandes-y-pequenos/|https://afinicontent.com/wp-content/uploads/2020/07/Canva-Toy-teddy-bear..jpg
+Let’s play with the cubes|7-9 meses|https://afinicontent.com/juguemos-con-los-cubos/|https://afinicontent.com/wp-content/uploads/2020/06/bloque.png
+Cabeza, cara...|13-18 meses|https://afinicontent.com/cabeza-cara/|https://afinicontent.com/wp-content/uploads/2020/08/cabeza-cara-1.png
+Arriba y abajo|7-9 meses|https://afinicontent.com/arriba-y-abajo/|https://afinicontent.com/wp-content/uploads/2020/06/Canva-African-American-Mother-.jpg
+Soplen Peques|49- 60 meses|https://afinicontent.com/soplen-peques/|https://afinicontent.com/wp-content/uploads/2020/07/Canva-Thirsty-Multicultural-Children-Drink-Water-1.jpg
+Mi primera pelota|0-3|https://afinicontent.com/mi-primera-pelota/|https://afinicontent.com/wp-content/uploads/2020/06/primera-pelota.jpg
+Imitando a mamá y papá|0-3 meses|https://afinicontent.com/imitando-a-mama-y-papa/|https://afinicontent.com/wp-content/uploads/2020/06/imitando-a-mam%C3%A1-y-pap%C3%A1.jpg
+Palmaditas|0-3 meses|https://afinicontent.com/palmaditas/|https://afinicontent.com/wp-content/uploads/2020/06/Untitled-design-12.jpg
+Mi Carita|0-3 meses|https://afinicontent.com/mi-carita/|https://afinicontent.com/wp-content/uploads/2020/06/mi-carita.jpg
+Boca Musical|0-3 meses|https://afinicontent.com/boca-musical/|https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/ef01e20e-b395-48e5-8c31-2f7a8ba850a3.jpg
+Charlando en la cuna|0-3 meses|https://afinicontent.com/charlando-en-la-cuna/|https://afinicontent.com/wp-content/uploads/2020/06/charlando-lacuna.jpg
+Mimos|0-3 meses|https://afinicontent.com/mimos/|https://afinicontent.com/wp-content/uploads/2020/06/mimos.jpg
+Mi Primer sonajero|0-3 meses|https://afinicontent.com/mi-primer-sonajero/|https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/e90e1f78-6b21-4b09-83ad-ec615ca87e58.jpg
+Mirada de amor|0-3 meses|https://afinicontent.com/mirada-de-amor/|https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/4324141f-fc08-4172-98d9-b5e5d6d365d3.jpg
+Juego de voces|0-3 meses|https://afinicontent.com/juego-de-voces/|https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/feade61c-dbda-4f65-8ccf-cafe76894528.jpg
+Canciones de cambio de pañal|0-3 meses|https://afinicontent.com/canciones-de-cambio-de-panal/|https://afinicontent.com/wp-content/uploads/2020/06/camciones-de-cambio-de-pa%C3%B1al.jpg
+Me veo en el espejo|7-9 meses|https://afinicontent.com/me-veo-en-el-espejo/|https://afinicontent.com/wp-content/uploads/2020/06/veo-el-eseojo.jpg
+Quita el sombrero|7-9 meses|https://afinicontent.com/quita-el-sombrero/|https://afinicontent.com/wp-content/uploads/2020/06/Untitled-design-17.jpg
+Veo veo una sombra|4-6 meses|https://afinicontent.com/veo-veo-una-sombra/|https://afinicontent.com/wp-content/uploads/2020/06/veo-veo-una-sombra.jpg
+Balanceo|0-3 meses|https://afinicontent.com/balanceo/|https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/372526e2-170e-4578-9e5f-0d6b054d0e72.jpg
+¡Llamemos por teléfono!|25-36 meses|https://afinicontent.com/llamemos-por-telefono/|https://afinicontent.com/wp-content/uploads/2020/08/tel%C3%A9fono.png
+Figuritas en el techo|4-6 meses|https://afinicontent.com/figuritas-en-el-techo/|https://afinicontent.com/wp-content/uploads/2020/06/figuritas-en-el-techo.jpg
+Puedes alcanzarlo|0-3 meses|https://afinicontent.com/puedes-alcanzarlo/|https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/1984a168-194f-4a96-a2ec-4203795ed93e.jpg
+ARañita en mi pancita|4-6 meses|https://afinicontent.com/aranita-en-mi-pancita/|https://afinicontent.com/wp-content/uploads/2020/06/ara%C3%B1ita-en-mi-pancita.jpg
+Vamos de paseo|4-6 meses|https://afinicontent.com/vamos-de-paseo/|https://gallery.mailchimp.com/5cf2242238397d235eac23533/images/6ed4df51-3443-4802-a9d3-a24419fd6b71.jpg
+Elevando el Globito|37-48 meses|https://afinicontent.com/elevando-el-globito/|https://afinicontent.com/wp-content/uploads/2020/07/Canva-Kids-playing-with-balloons.jpg
+Utilizando lenguaje positivo|10-12 meses|https://afinicontent.com/utilizando-lenguaje-positivo/|https://afinicontent.com/wp-content/uploads/2020/09/utilizando-un-lenguaje-positivo.jpg
 Imitando al bebé
 0-3 meses
 https://afinicontent.com/imitando-al-bebe/
